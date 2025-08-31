@@ -1,1 +1,8 @@
-# gt-learning
+# Think Good ....
+
+All are good
+
+Good
+
+best
+
